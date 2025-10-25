@@ -1,4 +1,4 @@
-# Natural ou Fake Natty? Como Vencer na Era das IAs Generativas
+Vencer na Era d# Natural ou Fake Natty? Como as IAs Generativas
 
 ## 🚀 Introdução
 
